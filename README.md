@@ -4,7 +4,7 @@
 
 <h2>🚀 Watch Live :</h2>
 
-[www.modelwindow.com](https://guess-my-number25.netlify.app/)
+[www.modelwindow.com](https://model-window25.netlify.app/)
 
 <h2>👁️ Project Overview :</h2>
 
